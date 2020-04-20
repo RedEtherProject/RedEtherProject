@@ -3,7 +3,8 @@ Yve Vestal Titan
 Yve Vestal Titan
 Apr 20 · 15 min read
 
-Red Ether Manifesto
+
+
 
 Why Red?
 Red in Chinese culture is the color of good luck, of love, energy; it is motion in life, blood flowing through the veins, but also semblances a strong duality. Red is the color of life and energy, but it is also the color of blood, bloodshed, hostility and war.
@@ -63,7 +64,7 @@ though brushed off as non urgent, the progressive representative developed this 
 Later, Senator Brown, Ohio proposed in the 3rd US. Cares Act, a US Digital Dollar section
 “Banking For All Act”
 The idea involves a free digital bank account, to flare off the currencies created by Big Tech, such as Zuckerberg’s new currency, Libra Coin.
-It’s sobering to realize that an entity like Facebook already owns us. It owns you, it still owns us to some extent, and the very idea that they are attempting to control currency by preventing ads by its digital competitors rules that the possibility should not be ruled out or taken lightly. Some say that he is a liberal. But if you are being censored, monitored, and controlled by a liberal, would you actually feel liberated?
+It’s sobering to realize that an entity like Facebook already owns us. It owns you, it still owns us to some extent, and the very idea that they are attempting to control currency by preventing ads by its digital competitors proves that the possibility should not be ruled out or taken lightly. It is a fiscal threat to society when currency is controlled by a corporation, but we are not very far off. Some say that Marx Zuckerberg is a liberal. But if you are being censored, monitored, and controlled by a liberal, would you actually feel liberated?
 A search engine knows all of our fears, thoughts, consumer preferences, complements, substitutes, engagements, past history and can use that data to alter us instantly. When we find out foreign companies, such as Zoom, are Made in China, well, we essentially become another one of their separation concerns.
 The Red Ether
 Yes, we garner this duality in the color red, to symbolize love but also anger; it symbolizes fire, energy, blood flowing through veins representing life and also death and bloodshed through war. Red is also what we recognize as Communism: censorship to the fullest extent. The duality of red is embodied into the Red Ether, it is omnipresent, widespread, yet also hidden in a vapor and mist; The Red Ether is awake. And it is something we can no longer ignore.
@@ -73,4 +74,4 @@ The Roaring 1920’s were remembered by Robber Barrons, Tycoons in the Industria
 No amount of ‘philanthropy’ done by present day Robber Barrons should be written off for the uncompensated amount of data Big Tech companies have stripped from out identities and used to further market information back into users to inflate their financial and digital assets. It is time to take back control, it is time to disperse into the Ether.
 After all, as Americans, Revolution is in our nature, to venture out of comfort, to be a cutting edge example of modernization and thinking ahead. So we can do better. It is time we propel the Internet Revolution of on the Decentralized Blockchain, in a non-violent, but very intellectual way; It is time for Web3: A New Internet: The Red Ether Project.
 No more shadow bans, no more restrictions, and We The People own and access our data as entities, the modern human-machine interface.
-Cheers to America, Cheers to the New Age, as we enter the Red Ether.
+Enter the New Digital Age of Web3, as we enter the Red Ether.
